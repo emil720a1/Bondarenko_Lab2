@@ -1,2 +1,2 @@
 # Bondarenko_Lab2
-https://drive.google.com/file/d/1w6Kmmuqebx4PJARHgPpEzOKhXfn4BHG5/view?usp=drivesdk
+https://docs.google.com/document/d/1lwcn9Futf5QaOe7I5CGx-q7wKFIOdWGXOC0jODHzWNg/edit
